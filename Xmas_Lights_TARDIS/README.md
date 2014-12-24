@@ -3,3 +3,4 @@ Christmas lights inspired by Dr. Who´s TARDIS. Came out with the idea last year
 They are 2 printed files epoxied together after glueing the smoking paper windows for light difusing. Lights are press fitted.
 
 Lights bought here: http://www.ebay.co.uk/itm/CHRISTMAS-20-WHITE-Battery-Operated-LED-Multi-Indoor-Lights-with-Clear-Cable-/251759067596?
+They last more than 3 days in blinking mode with 3 1200mAh ENELOOPs.
