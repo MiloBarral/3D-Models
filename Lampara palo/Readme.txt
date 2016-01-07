@@ -1,0 +1,1 @@
+Vergonzosa lámpara palo con tira de LEDS, pletina de aluminio, perfil de aluminio cuadrado, holguras brutales y un soporte definitivamente insuficiente.
